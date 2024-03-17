@@ -15,7 +15,7 @@ Perangkat Lunak :
 
 
 
-Nama: **Zahra**
+
 </h4>
 <p align="left">
 </p>
